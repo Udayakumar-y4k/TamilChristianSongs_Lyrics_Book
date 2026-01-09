@@ -1,8 +1,5 @@
 # TamilChristianSongs_Lyrics_Book
 Tamil Christian Worship Songs – Lyrics Books  Consolidated lyrics books for the anointed Tamil Christian worship song series.
-Tamil Christian Worship Songs – Lyrics Books
-
-Consolidated lyrics books for the anointed Tamil Christian worship song series.
 
 Each album's lyrics book contains pure Tamil handwritten lyrics with poetic English translations, biblical references, short study notes, and closing prayers.
 
